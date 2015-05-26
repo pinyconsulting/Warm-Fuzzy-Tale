@@ -1,7 +1,10 @@
 ## Warm Fuzzy Tale ##
 
 *P.36, [Donkey Bridges for Developmental TA, 2nd Edition](http://www.sherwoodpublishing.com/ta-books-and-dvds1.html), by Julie Hay*
+
 (amended form Claude M. Steiner's version, [A Warm Fuzzy Tale](http://www.claudesteiner.com/fuzzy.htm))
+
+翻译：陈艺文 郭晓晶
 
 Once upon a time there was a land where everyone was very happy. Each person was born with a magic bag which contained an endless supply of warm fuzzies. When these were handed out to other people, they were like the touch of a small child’s hand - so that people felt warmth and caring whenever they received a fuzzy. And because the bags were magic, everyone could ask for and get as many warm fuzzies as they wanted.
 
