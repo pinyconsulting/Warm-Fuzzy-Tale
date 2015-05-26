@@ -28,4 +28,5 @@ Eventually a wise traveller came along, saw what had happened and told people th
 
 ---
 
-<sup>1</sup> 有没有更口语的表达方式呢？
+- [x] Solved
+- [ ] <sup>1</sup> [Q] 有没有更口语的表达方式呢？[A] Still thinking.
