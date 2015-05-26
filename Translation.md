@@ -1,3 +1,7 @@
+Warm Fuzzy Tale
+
+P.36, [Donkey Bridges for Developmental TA](http://www.amazon.co.uk/dp/0952196417), by Julie Hay
+
 Once upon a time there was a land where everyone was very happy. Each person was born with a magic bag which contained an endless supply of warm fuzzies. When these were handed out to other people, they were like the touch of a small child’s hand - so that people felt warmth and caring whenever they received a fuzzy. And because the bags were magic, everyone could ask for and get as many warm fuzzies as they wanted.
 
 从前有一个地方，在那儿大家都很快乐。每个人出生的时候就有一个神奇的袋子，里面有取之不尽的「温暖的绒绒」。当这些「绒绒」给到人的时候，它们就像小孩子的手的抚摸那样，接到它的人会觉得很温暖，很受关爱。因为袋子是神奇的，人人都可以要，也可以因而得到他们想要的、足够多的「温暖的绒绒」。
