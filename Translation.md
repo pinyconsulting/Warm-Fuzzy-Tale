@@ -2,7 +2,7 @@
 
 *P.36, [Donkey Bridges for Developmental TA, 2nd Edition](http://www.sherwoodpublishing.com/ta-books-and-dvds1.html), by Julie Hay*
 
-*(amended form Claude M. Steiner's version, [A Warm Fuzzy Tale](http://www.claudesteiner.com/fuzzy.htm))*
+*(Which amended from Claude M. Steiner's version, [A Warm Fuzzy Tale](http://www.claudesteiner.com/fuzzy.htm))*
 
 陈艺文 郭晓晶 | 译
 
