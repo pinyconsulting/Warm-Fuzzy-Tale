@@ -26,4 +26,6 @@ Eventually a wise traveller came along, saw what had happened and told people th
 
 后来，一个有智慧的旅行者来到这个地方，看到这儿发生了什么，告诉大家，袋子是真的有魔力的，给出的「温暖的绒绒」越多，就可以有更多。人们开始相信这位旅行者说的，更多地给出「绒绒」！我们对他们调整给出「绒绒」的模式<sup>1</sup>，成功地变得更快乐，充满期待。
 
+---
+
 <sup>1</sup> 有没有更口语的表达方式呢？
