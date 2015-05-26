@@ -31,4 +31,4 @@ Eventually a wise traveller came along, saw what had happened and told people th
 ---
 
 - [x] Solved
-- [ ] <sup>1</sup> GXJ: 有没有更口语的表达方式呢？James: ing.
+- [ ] <sup>1</sup> Guo: 有没有更口语的表达方式呢？James: ing.
