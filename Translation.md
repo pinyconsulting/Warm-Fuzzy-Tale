@@ -18,11 +18,11 @@ One day a wicked witch arrived and started a rumour that there would not always 
 
 Now the land was not so happy. People gave out fuzzies only sparingly, and even then they wanted one in return each time. Someone invented cold pricklies, which stimulated unpleasant feelings but at least reminded people that they were alive. The wicked witch made a lot of money selling misery cures.
 
-现在这个地方，大家没那么快乐了。人们都不太愿意给出「绒绒」，有时候给出一个还盼着换回一个。有人发明了「冷冷的刺刺」，它会带来不愉快的感觉，但至少可以提醒人，“你还活着！” 那个邪恶的巫婆得逞了，她通过兜售治愈痛苦的神奇药水，赚了很多钱。
+现在这个地方，大家没那么快乐了。人们都不太愿意给出「绒绒」，有时候给出一个还盼着换回一个。有人发明了「冷冷的刺刺」，它会带来不愉快的感觉，但至少可以提醒人，“你还活着！”那个邪恶的巫婆得逞了，她通过兜售治愈痛苦的神奇药水，赚了很多钱。
 
 A group of people got together and invented plastic fuzzies, where it felt for a moment as if a warm fuzzy had been received but then it became apparent that there was no real feeling behind it from the giver.
 
-还有一群人一起发明了仿造的「戎戎」, 一拿到它的时候很像「绒绒」的感觉，但很快就可以发现，给出它的人并没有带着真实的情感。
+还有一群人一起发明了仿造的「戎戎」，一拿到它的时候很像「绒绒」的感觉，但很快就可以发现，给出它的人并没有带着真实的情感。
 
 Eventually a wise traveller came along, saw what had happened and told people that the bags WERE magic and that the more warm fuzzies they gave out, the more would be generated. Some people started to believe the traveller and began to give out more fuzzies. We are now waiting to see them succeed in changing the fuzzy-giving pattern for the better.
 
