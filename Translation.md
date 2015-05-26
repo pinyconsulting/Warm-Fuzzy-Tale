@@ -25,3 +25,6 @@ A group of people got together and invented plastic fuzzies, where it felt for a
 Eventually a wise traveller came along, saw what had happened and told people that the bags WERE magic and that the more warm fuzzies they gave out, the more would be generated. Some people started to believe the traveller and began to give out more fuzzies. We are now waiting to see them succeed in changing the fuzzy-giving pattern for the better.
 
 后来，一个有智慧的旅行者来到这个地方，看到这儿发生了什么，告诉大家，袋子是真的有魔力的，给出的「温暖的绒绒」越多，就可以有更多。人们开始相信这位旅行者说的，更多地给出「绒绒」！我们对他们调整给出「绒绒」的<font color="red">模式</font>，成功地变得更快乐，充满期待。
+
+```html
+   // code for coloring
